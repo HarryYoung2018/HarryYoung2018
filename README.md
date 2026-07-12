@@ -8,7 +8,7 @@
 
 - ⚡ Fun fact **I love diving.**
 
-- 📝 I regularly write articles on **[https://github.com/HarryYoung2018/HarryYoung2018.github.io](https://github.com/HarryYoung2018/HarryYoung2018.github.io)**
+- 📝 I regularly write articles on **[https://github.com/HarryYoung2018/HarryYoung2018.github.io](https://harryyoung2018.github.io/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
